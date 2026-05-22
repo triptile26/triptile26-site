@@ -1,1 +1,0 @@
-# triptile26-site
